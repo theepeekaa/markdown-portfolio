@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Thai pavilion
+2. Banana leaf
+3. Godavari south Indian restaurant
